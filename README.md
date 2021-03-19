@@ -1,10 +1,5 @@
-# project1
-demo project 
-sasidhar G
-sasidhargoli4@gmail.com
-information technology
-
-
-#rvrjc
-#chowdavaram
-#guntur
+#sasidhar
+#y19it037
+#sasidhargoli4@gmail.com
+#information technology
+#9390897792
